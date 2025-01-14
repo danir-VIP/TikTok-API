@@ -37,9 +37,9 @@ Download Post By Video Id
 
 Download tiktok video without watermark
 
-Contact telegram https://t.me/danirusa
+Contact telegram https://t.me/daniruee
 
-Tegram channel https://t.me/toolsgit
+Tegram channel https://t.me/toolsgi
 
 # TikTok-API
 tiktok api 最新版本批量创建 tik tok 账户，tik tok 点赞、评论，tik tok 最新版本，x-gorgon，x-ladon，x-argus，算法
